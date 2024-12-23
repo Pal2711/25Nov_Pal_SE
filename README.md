@@ -1,11 +1,11 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Sachin Gardhariya
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Pal Gajera
 =========================================================================================================================================
 
 Student and aspiring to learn everything
 ----------------------------------------
 
 * 🌍  I'm based in Rajkot Gujarat
-* ✉  You can contact me at [sachingardhariya30146@gmail.com](mailto:sachingardhariya30146@gmail.com)
+* ✉  You can contact me at [gajerapal&@gmail.com](mailto:gajerapal&@gmail.com)
 
 ### Skills
 
